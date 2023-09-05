@@ -1,4 +1,4 @@
-### Hi! I'm Shams <p>:speak_no_evil_monkey:</p>
+### Hi! I'm Shams ✨
 #### A Web developer 
 ----------------------- 
 
